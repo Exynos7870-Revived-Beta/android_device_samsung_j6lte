@@ -20,4 +20,4 @@ It was announced and released in May 2018.
 
 ## Device picture
 
-![Samsung J6 2018](https://www.maxmovil.com/media/catalog/product/cache/1/thumbnail/600x/17f82f742ffe127f42dca9de82fb58b1/c/o/comprar_samsung_galaxy_j6_2018_negro.jpg)
+![Samsung J6 2018](https://fdn2.gsmarena.com/vv/pics/samsung/samsung-galaxy-on6-02.jpg)
